@@ -1,4 +1,6 @@
-# Hi, I'm Soomin Kim.
+# Hi, I'm Soomin.🐰
+
+## 👩‍💻
 
 I'm a person of 
 
